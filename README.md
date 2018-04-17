@@ -2,4 +2,4 @@
 github tutorial
 
 
-My name is Elena and I study medical phsyics.
+My name is Elena and I study medical phsyics in Hamilton.
